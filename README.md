@@ -11,3 +11,4 @@
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/ID%20photo6.png)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/ID%20photo7.png)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/ID%20photo8.png)
+![](https://github.com/1770510177-gif/team-website-images/blob/main/jia.jpeg)
