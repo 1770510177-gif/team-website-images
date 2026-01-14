@@ -44,3 +44,4 @@
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/zhangrong.jpeg)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/zhangyue.jpeg)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/zhaoziqi.jpeg)
+![](https://github.com/1770510177-gif/team-website-images/blob/main/hamaide.jpg)
