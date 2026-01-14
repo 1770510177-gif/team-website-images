@@ -27,3 +27,5 @@
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/zhaonan.jpeg)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/3.jpg)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/10.jpg)
+![](https://github.com/1770510177-gif/team-website-images/blob/main/10.jpg)
+![](https://github.com/1770510177-gif/team-website-images/blob/main/%E6%96%B0%E5%B9%B4%E8%B4%BA%E8%AF%8D.jpg)
