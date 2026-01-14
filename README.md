@@ -33,3 +33,4 @@
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/Mangrove.png)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/Frontiers.jpg)
 ![](https://github.com/1770510177-gif/team-website-images/blob/main/tuanduihezhao.jpg)
+![](https://github.com/1770510177-gif/team-website-images/blob/main/%E7%BD%91%E9%A1%B51.jpg)
